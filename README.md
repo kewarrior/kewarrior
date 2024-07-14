@@ -2,7 +2,7 @@
 
 - 🔭 Por enquanto procuro trabalho na área de programação.
 - 🌱 Estou a acabar o curso de PSI na Universidade de Aveiro.
-- 💬 Pergunte-me sobre...
+- 💬 Pergunta-me sobre qualquer coisa .. 
 - 📫 Contacte-me através do e-mail: joao_pinho96@hotmail.com
 - ⚡ Fun fact: Adoro desporto e programação.
 
